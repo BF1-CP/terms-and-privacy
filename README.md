@@ -1,0 +1,2 @@
+# terms-and-privacy
+none
